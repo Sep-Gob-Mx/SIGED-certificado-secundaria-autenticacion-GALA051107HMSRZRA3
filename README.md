@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GALA051107HMSRZRA3
+GALA051107HMSRZRA3
